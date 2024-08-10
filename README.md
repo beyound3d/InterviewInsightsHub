@@ -6,6 +6,7 @@ I’m passionate about deliver exceptional service to clients and business manag
 Lastly i'm adaptive for new technology and environment and excited about the opportunity to contribute to [Company or Project Name]."
 
 **Upse:**
+
 Good morning. My name is Tanu Kaushik, and I am from Baghpat in Uttar-Pradesh. I have completed my Graduation from Delhi University. During my studies, I focused on developing interpersonal and technical skills, and I have also gained practical experience through Projects. I am particularly interested in Singing, and in my free time, I enjoy listening pop music.
 <br>
 <hr>
