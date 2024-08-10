@@ -10,6 +10,11 @@ Lastly i'm adaptive for new technology and environment and excited about the opp
 Good morning. My name is Tanu Kaushik, and I am from Baghpat in Uttar-Pradesh. I have completed my Graduation from Delhi University. During my studies, I focused on developing interpersonal and technical skills, and I have also gained practical experience through Projects. I am particularly interested in Singing, and in my free time, I enjoy listening pop music.
 <br>
 <hr>
-Good morning. I am Tanu Kaushik, from Uttar-Pradesh. I graduated with a Bachleor's in Computers from the University of Delhi, where I led a technical skills. I have worked with [Organization] as a policy analyst, focusing on environmental regulations. My strengths include analytical thinking and policy development, and I am passionate about environmental sustainability. In my free time, I enjoy listening music and photography, which have honed my observational skills. I am excited about the opportunity to bring my expertise and enthusiasm to the UPSC role, contributing to effective policy-making and implementation.\
+Good morning. I am Tanu Kaushik, from Uttar-Pradesh. I graduated with a Bachleor's in Computers from the University of Delhi, where I led a technical skills. I have worked with [Organization] as a policy analyst, focusing on environmental regulations. My strengths include analytical thinking and policy development, and I am passionate about environmental sustainability. In my free time, I enjoy listening music and photography, which have honed my observational skills. I am excited about the opportunity to bring my expertise and enthusiasm to the UPSC role, contributing to effective policy-making and implementation.
+
+## what is your daily routine?
+My daily routine starts with waking up at 6 AM. I exercise for 30 minutes, followed by breakfast. I work from 9 AM to 5 PM, taking short breaks throughout. Evenings are for cooking dinner, relaxing with a book or TV show, and preparing for the next day. I usually go to bed around 10 PM.
+
+
 
                                                                                                   
