@@ -17,6 +17,6 @@ My daily routine starts with waking up at 6 AM. I exercise for 30 minutes, follo
 
 
 ## Links for Redume:
-[Bussiness Developer](https://app.enhancv.com/share/ee7f8e14/?utm_medium=growth&utm_campaign=share-resume&utm_source=dynamic)
-[Computer Engineer](https://1drv.ms/w/s!AvnZc-EokC8_mKVkhrP-DbD_nv4Gag?e=8gpBZx)
+- [Bussiness Developer](https://app.enhancv.com/share/ee7f8e14/?utm_medium=growth&utm_campaign=share-resume&utm_source=dynamic)
+- [Computer Engineer](https://1drv.ms/w/s!AvnZc-EokC8_mKVkhrP-DbD_nv4Gag?e=8gpBZx)
                                                                                                   
