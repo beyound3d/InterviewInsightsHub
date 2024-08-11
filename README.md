@@ -16,5 +16,7 @@ Good morning. I am Tanu Kaushik, from Uttar-Pradesh. I graduated with a Bachleor
 My daily routine starts with waking up at 6 AM. I exercise for 30 minutes, followed by breakfast. I work from 9 AM to 5 PM, taking short breaks throughout. Evenings are for cooking dinner, relaxing with a book or TV show, and preparing for the next day. I usually go to bed around 10 PM.
 
 
-
+## Links for Redume:
+[Bussiness Developer](https://app.enhancv.com/share/ee7f8e14/?utm_medium=growth&utm_campaign=share-resume&utm_source=dynamic)
+[Computer Engineer](https://1drv.ms/w/s!AvnZc-EokC8_mKVkhrP-DbD_nv4Gag?e=8gpBZx)
                                                                                                   
